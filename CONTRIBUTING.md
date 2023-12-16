@@ -1,0 +1,1 @@
+Thank you for considering contributing to the Accessibility repository. Your contributions help build a valuable resource for reseacrchers, practitioners and policymakers interested in advancing the field of social impact research.
